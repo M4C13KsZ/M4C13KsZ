@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @M4C13KsZ aka Szniobor
-- 👀 I’m interested in mainly music and playing on different instruments and I'm typical connoisseur of Harnaś
+- 👀 I’m interested in mainly music and playing on different instruments and I'm typical connoisseur of Harnaś. Sometimes I do useless programs.
 - 🌱 I’m currently studying Teleinformatics @ Silesian University of Technology in Poland
 - 💞️ I’m looking to collaborate on ... hell no
 - 📫 How to reach me:
